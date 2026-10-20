@@ -8,6 +8,6 @@ Estoy en CFGM SMR 1º en el Instituto IES Zaidín-Vergeles en Granada. Muy inter
 Me gusta en mi tiempo libre:
 
 
--Gimnsaio, Taekwondo y me gusta aprender sobre lo que mas me gusta.
+Gimnsaio, Taekwondo y me gusta aprender sobre lo que mas me gusta.
 
 
